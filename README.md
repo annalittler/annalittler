@@ -4,6 +4,6 @@ Currently in training to become a full-stack developer, with a particular intere
 When I'm not coding you'll find me baking sourdough, playing guitar, or at the beach 🐚<br/>
 
 Hit me up if you'd like to collab 🌅<br/>
-You can [email](mailto:annalittler@gmail.com), [dm](https://instagram.com/annalittler) or [linkedin](https://www.linkedin.com/in/anna-littler-00032a237/) me.
+You can [email](mailto:hi@annalittler.com), [dm](https://instagram.com/annalittler) or [linkedin](https://www.linkedin.com/in/anna-littler/) me.
 </br></br>
 Talk soon!
